@@ -1,0 +1,1 @@
+# Placeholder for README (will copy full version next)
